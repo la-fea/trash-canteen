@@ -1,0 +1,2 @@
+# trash-canteen
+trashi-free!
